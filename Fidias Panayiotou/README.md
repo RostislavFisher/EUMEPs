@@ -17,8 +17,8 @@ Position in the European Parliament:
 - https://x.com/Fidias0/status/1836706807655322021 - Fidias comments his vote
 3. Position on Commission President:
 
-Does not support Ursula von der Leyen
-- He criticizes her, he voted against her, but the decision was made by his subscribers on Twitter
+- Does not support Ursula von der Leyen
+- He criticizes her and voted against her, but the final decision was made by his subscribers on Twitter
 - https://x.com/Fidias0/status/1813916017908932670 - Fidias comments his vote
 - https://x.com/Fidias0/status/1812123321531564434 - poll
 4. Free speech in the internet:
@@ -26,7 +26,7 @@ Does not support Ursula von der Leyen
 - Digital Services Act is positive, not censorship.
 5. Venezuela:
 
-- Criticism of the EU's position on Venezuela, he believes that the EU should not (interfere in the internal affairs of Venezuela?) (do desiccation that do not influence the factual situation in Venezuela?)
+- Criticism of the EU position on Venezuela, he believes that the EU should not (interfere in the internal affairs of Venezuela?) (do things that do not affect the actual situation in Venezuela?)
 - From the other side, he does not support the Maduro regime
 6. Georgia:
 
